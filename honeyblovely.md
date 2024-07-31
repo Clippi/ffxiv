@@ -149,7 +149,7 @@ Tank stack
 #### Spread love
 
 - Sama kun [Splash of Venom](#splash-of-venom) eli spread. Mutta antaa sydän stackin
-- Videolla ei näkyny mutta teoria on että ois joku vastine myös [drop of venomille](#drop-of-venom) eli paristack
+- Videolla ei näkyny mutta teoria on että ois joku vastine myös [drop of venomille](#drop-of-venom) eli paristack (confirmed drop of love)
 
 #### Poison sting
 
